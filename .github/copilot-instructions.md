@@ -1,1 +1,1 @@
-Please respond in Spanish.
+Please respond in Spanish and English.
