@@ -1,1 +1,1 @@
-Please respond in English and Italian.
+Please respond to prompts in English and Italian.
